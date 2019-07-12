@@ -1,0 +1,1 @@
+Copyright (c) 2018 by ANDY - NGUYEN THE ANH DINH 
